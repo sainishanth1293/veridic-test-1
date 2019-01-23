@@ -1,2 +1,2 @@
- love india ap vij
+ love india ap vijaya
 love telugu
